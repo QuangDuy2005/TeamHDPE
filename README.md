@@ -1,2 +1,3 @@
 # TeamHDPE
 Mạng xã hội học tập &amp; quản lý hoạt động sinh viên
+https://docs.google.com/document/d/1nlgtjTjm0V6vTYuuizvqEUWsCF_7ILBKUnrxQynhbkU/edit?fbclid=IwY2xjawPtlt9leHRuA2FlbQIxMABicmlkETE1MlRvRXV4eHlSWDJqMkxGc3J0YwZhcHBfaWQQMjIyMDM5MTc4ODIwMDg5MgABHhSxj9q1pguZhxznIDl1rHnqZEkNZ8vXM_AT42HhqLXOdCxntSNV7Auij6KI_aem_irdJl1S0plt_2A2wiglB9w&tab=t.61md1mgsm2qp
